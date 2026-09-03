@@ -1,1 +1,1 @@
-fandom dni ou iwec ok idc just dont be weird 
+fandom dni ou iwec ok i dont mind just dont be weird 
