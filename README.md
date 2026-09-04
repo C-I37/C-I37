@@ -1,6 +1,6 @@
 fandom dni ou iwec ok i dont mind just dont be weird 
-<img src="https://github.com/user-attachments/assets/b87e2ca5-612f-47fd-959b-bbebe1e0c0a2" 
-     width="200" 
+<img src="https://github.com/user-attachments/assets/f594b365-627c-4b79-84cb-9376f22ff83d" 
+     width="400" 
      align="right" 
      style="margin-right: 15px;" />
      
