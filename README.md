@@ -3,6 +3,11 @@
      width="400" 
      align="right" 
      style="margin-right: 15px;" />
+
+<img src="https://github.com/user-attachments/assets/bf395b07-4182-477f-952e-ef3bbb6b81af"
+     width="100" 
+     align="left" 
+     style="margin-right: 15px;" />
      
 <p align="center">
 ${\color{#b7b7a6}fandom ~~~~dni \color{#b6b678}~~~~ou \color{#bdbd74}~~~~iwec \color{#bdaa71}~~~~ok ~~~~i \color{#af7241}~~~~dont \color{#825120}~~~~mind ~~~~just \color{#5c3132}~~~~dont \color{#3d2324}~~~~be ~~~~weird }$
