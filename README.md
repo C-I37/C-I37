@@ -10,6 +10,6 @@ ${\color{#b7b7a6}fandom ~~~dni \color{#b6b678}~~~ou \color{#bdbd74}~~~iwec \colo
 <p align="center">
 ${\color{#b7b7a6}matt ~~~~~ou ~~~~~fickin ~~~~~( em )}$
 <p align="center">   
-${\color{#b7b7a6}might ~~~~~be ~~~~~a ~~~~~lit ~~~~~dry ~~, ~~~~~im ~~~~~friendly ~~~~~tho ~~~-3-}$
+${\color{#b7b7a6}might ~~~~~be ~~~~~a ~~~~~lit ~~~~~dry ~~~, ~~~~~im ~~~~~friendly ~~~~~tho ~~~-3-}$
 <p align="center">   
-${\color{#b7b7a6}rickorty , ~~~~~incest , ~~~~~etc ~~~~~pls \color{#yellow}~~~~~DNI ~~DNI ~~DNI ~~~!! }$
+${\color{#b7b7a6}rickorty ~~~, ~~~~~incest ~~~, ~~~~~etc ~~~~~pls \color{#yellow}~~~~~DNI ~~DNI ~~DNI ~~~!! }$
