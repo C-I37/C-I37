@@ -10,4 +10,6 @@ ${\color{#b7b7a6}fandom ~~~dni \color{#b6b678}~~~ou \color{#bdbd74}~~~iwec \colo
 <p align="center">
 matt ou fickin ( em )
 <p align="center">   
-might be a lit dry , im friendly tho !!
+might be a lit dry , im friendly tho -3-
+<p align="center">   
+rickorty , incest , etc pls DNI DNI DNI !!
