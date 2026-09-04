@@ -15,6 +15,6 @@ ${\color{#b7b7a6}fandom ~~~~dni \color{#b6b678}~~~~ou \color{#bdbd74}~~~~iwec \c
 <p align="center">
 ${\color{#bdbd74}matt \color{#bdaa71}~~~~~ou \color{#af7241}~~~~~fickin \color{#825120}~~~~~( em )}$
 <p align="center">   
-${\color{#b7b7a6}might ~~~~~be ~~~~~a ~~~~~lit ~~~~~dry ~~~, ~~~~~im ~~~~~friendly ~~~~~tho ~~~-3-}$
+${\color{#b7b7a6}might ~~~~~be \color{#b6b678}~~~~~a \color{#bdbd74}~~~~~lit \color{#bdaa71}~~~~~dry ~~~, \color{#af7241}~~~~~im \color{#825120}~~~~~friendly \color{#5c3132}~~~~~tho \color{#3d2324}~~~-3-}$
 <p align="center">   
-${\color{#b7b7a6}rickorty ~~~, ~~~~~incest ~~~, ~~~~~etc ~~~~~pls \color{#yellow}~~~~~DNI ~~DNI ~~DNI ~~~!! }$
+${\color{#b7b7a6}rickorty ~~~, ~~~~~incest ~~~, ~~~~~etc ~~~~~pls \color{darkred}~~~~~DNI ~~DNI ~~DNI ~~~!! }$
