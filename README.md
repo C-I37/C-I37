@@ -17,4 +17,4 @@ ${\color{#bdbd74}matt \color{#bdaa71}~~~~ou \color{#936526}~~~~fickin \color{#82
 <p align="center">   
 ${\color{#b7b7a6}might ~~~~be \color{#b6b678}~~~~a \color{#bdbd74}~~~~lit \color{#bdaa71}~~~~dry ~~~, \color{#936526}~~~~im \color{#825120}~~~~friendly \color{#5c3132}~~~~tho \color{#3d2324}~~~-3-}$
 <p align="center">   
-${\color{#b7b7a6}rickorty ~~~~, ~~~~incest ~~~, ~~~~etc ~~~~pls \color{darkred}~~~~DNI ~~DNI ~~DNI ~~~!! }$
+${\color{#b7b7a6}rickorty ~~~~, \color{#bdbd74}~~~~in\color{#bdaa71}cest ~~~, \color{#936526}~~~~etc \color{#825120}~~~~pls \color{darkred}~~~~DNI ~~DNI ~~DNI ~~~!! }$
