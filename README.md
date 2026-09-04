@@ -13,7 +13,7 @@
 ${\color{#b7b7a6}fandom ~~~~dni \color{#b6b678}~~~~ou \color{#bdbd74}~~~~iwec \color{#bdaa71}~~~~ok ~~~~i \color{#af7241}~~~~dont \color{#825120}~~~~mind ~~~~just \color{#5c3132}~~~~dont \color{#3d2324}~~~~be ~~~~weird }$
 
 <p align="center">
-${\color{#b7b7a6}matt ~~~~~ou \color{#bdbd74}~~~~~fickin \color{#bdaa71}~~~~~( em )}$
+${\color{#bdbd74}matt \color{#bdaa71}~~~~~ou \color{#af7241}~~~~~fickin \color{#825120}~~~~~( em )}$
 <p align="center">   
 ${\color{#b7b7a6}might ~~~~~be ~~~~~a ~~~~~lit ~~~~~dry ~~~, ~~~~~im ~~~~~friendly ~~~~~tho ~~~-3-}$
 <p align="center">   
