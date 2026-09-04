@@ -10,7 +10,7 @@
      style="margin-right: 15px;" />
      
 <p align="center">
-<img src="https://komarev.com/ghpvc/?username=C-I37&label=CLONES&labelColor=00000&color=000000&style=flat" alt="Profile views badge"/>
+<img src="https://komarev.com/ghpvc/?username=C-I37&label=CLONES&labelColor=bdbd74&color=bdbd74&style=flat" alt="Profile views badge"/>
      
 <p align="center">
 ${\color{#b7b7a6}fandom ~~~~dni \color{#b6b678}~~~~ou \color{#bdbd74}~~~~iwec \color{#bdaa71}~~~~ok ~~~~i \color{#af7241}~~~~dont \color{#825120}~~~~mind ~~~~just \color{#5c3132}~~~~dont \color{#3d2324}~~~~be ~~~~weird }$
