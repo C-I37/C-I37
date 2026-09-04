@@ -10,7 +10,7 @@
 <img src="https://komarev.com/ghpvc/?username=C-I37&label=CLONES&labelColor=bdbd74&color=bdbd74&style=flat" alt="Profile views badge"/>
      
 <p align="center">
-${\color{#b7b7a6}fandom ~~~dni \color{#b6b678}~~~ou \color{#bdbd74}~~~iwec \color{#bdaa71}~~~ok ~~~i \color{#a17b34}~~~dont \color{#825120}~~~mind ~~~just \color{#5c3132}~~~dont \color{#3d2324}~~~be ~~~weird }$
+${\color{#b7b7a6}fandom ~~~dni \color{#b6b678}~~~ou \color{#bdbd74}~~~iwec \color{#bdaa71}~~~ok ~~~i \color{#936526}~~~dont \color{#825120}~~~mind ~~~just \color{#5c3132}~~~dont \color{#3d2324}~~~be ~~~weird }$
 
 <p align="center">
 ${\color{#bdbd74}matt \color{#bdaa71}~~~~ou \color{#936526}~~~~fickin \color{#825120}~~~~( em )}$
