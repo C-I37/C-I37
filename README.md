@@ -5,4 +5,4 @@
      style="margin-right: 15px;" />
      
 <p align="center">
-${\color{#b7b7a6}fandom ~~~dni \color{#bdbd74}~~~ou ~~~iwec ~~~ok \color{#bdaa71}~~~i \color{#af7241}~~~dont \color{#825120}~~~mind ~~~just \color{#5c3132}~~~dont \color{#3d2324}~~~be ~~~weird }$
+${\color{#b7b7a6}fandom ~~~dni \color{#b6b678}~~~ou \color{#bdbd74}~~~iwec \color{#bdaa71}~~~ok ~~~i \color{#af7241}~~~dont \color{#825120}~~~mind ~~~just \color{#5c3132}~~~dont \color{#3d2324}~~~be ~~~weird }$
