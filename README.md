@@ -4,10 +4,7 @@
      align="right" 
      style="margin-right: 15px;" />
 
-<img src="https://github.com/user-attachments/assets/bf395b07-4182-477f-952e-ef3bbb6b81af"
-     width="100" 
-     align="left" 
-     style="margin-right: 15px;" />
+
      
 <p align="center">
 <img src="https://komarev.com/ghpvc/?username=C-I37&label=CLONES&labelColor=bdbd74&color=bdbd74&style=flat" alt="Profile views badge"/>
