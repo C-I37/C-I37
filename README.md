@@ -10,6 +10,9 @@
   cr to  <a href="https://github.com/wolfcutiee" 
          
   @wolfcutiee
+
+  <p align="center">
+<img src="https://komarev.com/ghpvc/?username=C-I37&label=CLONES&labelColor=bdbd74&color=bdbd74&style=flat" alt="Profile views badge"/>
     
 
      
